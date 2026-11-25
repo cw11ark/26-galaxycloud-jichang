@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：中转专线机场，提供月流量分档与1T不限时流量包。**
 >
-> 👉 **[官网注册](https://galaxyvipaffa03.cc/register?aff=61LwlGCx)** · 建议从 星尘套餐 的短周期开始，先核对客户端和常用节点。
+> 👉 **[官网注册](https://inv04.galaxyaff.cc/register?aff=AMjBRNfY)** · 建议从 星尘套餐 的短周期开始，先核对客户端和常用节点。
 >
 
 >
@@ -57,7 +57,7 @@
 
 ## 注册
 
-👉 **[前往银河云GalaxyCloud注册页面](https://galaxyvipaffa03.cc/register?aff=61LwlGCx)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
+👉 **[前往银河云GalaxyCloud注册页面](https://inv04.galaxyaff.cc/register?aff=AMjBRNfY)** · 付款前逐项核对当前套餐名、周期、流量与使用限制。
 
 ## 更新
 
